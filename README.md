@@ -1,0 +1,1 @@
+# shironix-smart-living
